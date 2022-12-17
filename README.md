@@ -1,5 +1,5 @@
 # 💫 About Me:
-😶‍🌫️ Painfully but happily working on my website BanMeNerd.com[https://banmenerd.com]<br>🤯 My mind is being blown at what I can do<br>🥳 Having fun, kicking it back, and vibing
+😶‍🌫️ Painfully but happily working on my website ChrisYeet.dev[https://chrisyeet.dev]<br>🤯 My mind is being blown at what I can do<br>🥳 Having fun, kicking it back, and vibing
 
 
 ## 🌐 Socials:
